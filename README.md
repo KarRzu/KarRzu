@@ -5,6 +5,8 @@
 
 - 👀 I’m interested in making **creating interactive and user-friendly web applications and landing pages.**
 
+- 💼 Open To Job Opportunities
+
 - 📫 How to reach me **karola.rzucidlo14@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
